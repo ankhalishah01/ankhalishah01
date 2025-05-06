@@ -1,5 +1,4 @@
-# 💫 About Me: 👋 Hellour!
-
+👋 Hellour!
 I'm **Azmi Nadhifah Khalishah**, a Digital Business student from Indonesia 🇮🇩 
 
 ✨ Let’s connect, grow & be friends  <br>
