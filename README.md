@@ -1,6 +1,6 @@
-# 👋 Eyyo world! I'm **Azmi Nadhifah Khalishah**, a Digital Business student from 🇮🇩 
+# 👋 Eyyo world! I'm **Azmi Nadhifah Khalishah**
 
-✨ Just a chill digital biz enthusiast who's still learning and loving to explor tech, creativity, and all things digital. 
+✨ Just a chill with a lil' passionate digital biz student girl who's still learning and loving to explore tech, creativity, and all things. 
 🚀 Hit me up, drop ideas, and glow up the hustle!
  
 
