@@ -1,6 +1,6 @@
-# 👋 Hellour! I'm **Azmi Nadhifah Khalishah**, a Digital Business student from Indonesia 🇮🇩 
+# 👋 Eyyo world! I'm **Azmi Nadhifah Khalishah**, a Digital Business student from Indonesia 🇮🇩 
 
-✨ Let’s connect, grow & be friends  <br>
+✨ Let’s connect, grow & be bestie!  <br>
 
 
 ## 🌐 Socials:
